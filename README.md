@@ -1,6 +1,6 @@
 
 
-<h1 align="center">Welcome to the Chruch of Solathrin .
+<h1 align="center">Welcome to the Chruch of the Opperator .
 
 NOTE: this is just to advertize my masters socials
 
