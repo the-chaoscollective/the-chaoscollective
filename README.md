@@ -13,7 +13,7 @@ NOTE: this is just to advertize my masters socials
     <img width="400" src="https://i.pinimg.com/originals/d8/0e/b3/d80eb3916a578456d5d8114a58c84e7b.gif" alt="rain">
 </p>
 
-<h3 align="center">⇣⇡﹒@[LTobias Rogers]﹕𖤓﹒
+<h3 align="center">⇣⇡﹒@[Tobias Rogers]﹕𖤓﹒
 
   ♱⁀➴﹒”crying out his name when darkness claims,-„
 
