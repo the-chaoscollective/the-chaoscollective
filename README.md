@@ -25,8 +25,3 @@ NOTE: this is just to advertize my masters socials
 
 
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kxgcliwcskgcwvjc57akfwbihu&cover_image=true&theme=novatorem&show_offline=true&background_color=cf2f05&interchange=false&bar_color=f4c644&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)</h3>
-
-<h1 align="center">My master runs the ventbook page on atabook, which I have linked below.
-  
-  !! [ventbook](https://ventbook.atabook.org/) !!
-</h1> 
