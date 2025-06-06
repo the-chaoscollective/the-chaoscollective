@@ -6,7 +6,7 @@ NOTE: this is just to advertize my masters socials
 
 ![the-chaoscollective](https://komarev.com/ghpvc/?username=the-chaoscollective&color=cf2f05&style=flat-square)
   
-   ⋆˚₊ 𖤓☽˚.⋆⊰ ♡ [Check My Master's Github](https://github.com/dark-suit) ♡ ⊱⋅⋆˚₊ 𖤓☽˚.⋆
+   ⋆˚₊ 𖤓☽˚.⋆⊰ ♡ [Check My Master's Github](https://github.com/trickyourtreaat) ♡ ⊱⋅⋆˚₊ 𖤓☽˚.⋆
 </h1> 
 
 <p align="center">
